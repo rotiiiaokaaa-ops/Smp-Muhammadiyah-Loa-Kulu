@@ -1,1 +1,0 @@
-# Smp-Muhammadiyah-Loa-Kulu
